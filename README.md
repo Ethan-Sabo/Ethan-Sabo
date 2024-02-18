@@ -2,3 +2,6 @@
 - 👀 I’m interested in Coumpuuter Phisycs 
 - 💞️ I’m looking to collaborate on HTML
 - 📫 Reach me by gmail <ethansabo88@gmail.com>
+- 🏫 my school: AICS
+- 🇳🇱 I live in the netherlands
+- 👬 Friends: Daniel Ben Anthony Jion 
